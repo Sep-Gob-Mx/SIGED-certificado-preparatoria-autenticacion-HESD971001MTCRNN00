@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HESD971001MTCRNN00
+HESD971001MTCRNN00
